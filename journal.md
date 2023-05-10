@@ -1,6 +1,6 @@
-YOOOO welcome to my first "journal article" 
+YOOOO welcome to OUR  first "journal article" 
 
-By : ME ! 
+By : ME additioanl author ! 
 
 
 INTRODUCTION: 
